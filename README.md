@@ -1,2 +1,1 @@
-# glgqqe.ru
-vibecoded
+# glgqqe.net
