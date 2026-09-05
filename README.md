@@ -1,1 +1,1 @@
-# glgqqe.net
+# glgqqe.ru
